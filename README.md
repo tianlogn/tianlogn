@@ -1,1 +1,1 @@
-![Tiêu đề ảnh](https://cdn.phototourl.com/free/2026-05-22-541385d7-37fe-474a-8674-cfb4602c9870.gif)
+![Tiêu đề ảnh](https://www.image2url.com/r2/default/gifs/1779527704819-76aaa2bf-558d-4e5d-ba33-bb651b5518fa.gif)
